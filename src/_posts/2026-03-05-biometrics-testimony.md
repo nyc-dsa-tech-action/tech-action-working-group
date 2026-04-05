@@ -21,7 +21,7 @@ The Council should pass Int. 0213-2026 after addressing the aforementioned conce
 
 **Signed,**   
 **Democratic Socialists of America (DSA) Technology Action Working Group**  
-Erik Sandahl, Hasan Khan, Raaid, Samuel Whalen, Shruthi Velidi, Sohini Upadhyay, Tiffany W
+Erik Sandahl, Hasan Khan, Raaid, Samuel Whalen, Shruthi Velidi, Sohini Upadhyay, Tiffany W 
 
 **References:**  
 \[1\] [Int. 0213-2026](https://legistar.council.nyc.gov/LegislationDetail.aspx?ID=6557556&GUID=E67A1D7D-5245-4373-B5FF-1AD968E3383F)  
