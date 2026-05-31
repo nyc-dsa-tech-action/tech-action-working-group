@@ -7,7 +7,7 @@ date: 2026-05-08
 ---
 
 
-### Statement on closing of NYC Public Schools (NYCPS) Guidance on AI feedback window
+### Statement on closing of NYC Public Schools (NYCPS) Guidance on AI feedback window 
 
 For immediate release: May 8, 2025 
 
